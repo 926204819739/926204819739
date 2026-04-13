@@ -2,3 +2,6 @@
 
 
 ☠︎︎ ⋆₊ ♱ til then i walk alone.
+
+i'm emo averythemayo
+its ok to approach me
