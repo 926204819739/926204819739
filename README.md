@@ -3,5 +3,8 @@
 
 ☠︎︎ ⋆₊ ♱ til then i walk alone.
 
-i'm emo averythemayo
+i'm emo punk rock averythemayo
+
 its ok to approach me
+
+[my slimeknight playlist](https://open.spotify.com/playlist/68Pc0RT4DTsoN2PUafjXN2?si=w2iGHjvqTfO-Q3Mv1OERvQ%0A)
