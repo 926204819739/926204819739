@@ -13,6 +13,5 @@
   $\text{\color{#979D6A}please interact...}$
   </p>
 
- [ata](https://-themostmayo.atabook.org/?page=1)   [my playlist](https://open.spotify.com/playlist/68Pc0RT4DTsoN2PUafjXN2?si=w2iGHjvqTfO-Q3Mv1OERvQ%0Ae)
-
+ [ata](https://-themostmayo.atabook.org/?page=1)   [my playlist](https://open.spotify.com/playlist/68Pc0RT4DTsoN2PUafjXN2?si=w2iGHjvqTfO-Q3Mv1OERvQ%0Ae) [about me](https://rentry.co/averydemayo)
 
